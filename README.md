@@ -1,5 +1,5 @@
 # Privacy-Policy
-Last updated: 8 November 2025
+Last updated: 8 January 2026
 
 Welcome to MxD Studio!
 
